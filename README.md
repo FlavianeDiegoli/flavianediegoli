@@ -1,5 +1,7 @@
 ## Oii , Eu sou a Flaviane :a:+
-Tenho 34 anos, mora em Brusque / SC  e sou apaixonada por programação ! Sou estudar e quanto mais eu aprendo e passo raiva, mais eu amo tudo isso!  ❤
+Tenho 34 anos,tenho um filho ,mora nasceu- Pelotas /Rs , muda mora - em Brusque / SC e sou apaixonada por programação ! 
+Sou estudar e quanto mais eu aprendo e passo raiva, mais eu amo tudo isso!  ❤
+Sou Dança da (Dtg piazitos dos sul ) muito adora 7 anos ! 
 <h4 align="center">
 
 <h2>Programação:</h2>
